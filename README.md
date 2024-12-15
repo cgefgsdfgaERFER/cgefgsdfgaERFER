@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @cgefgsdfgaERFER i dont know why i picked that name, all the useres i was trying were taken
+- 👀 I’m interested in, learning new things about coding and gett better at it so i can make it a living
+- 🌱 I’m currently learning python i want to get to know ML, and more cool things like that
+- 📫 How to reach me, maybe later.
+- 😄 Pronouns: he/him/attack helicopter
+- ⚡ Fun fact: i started coding in 6th grade im now a freshman in high school i didnt really like lua so i quit for a year or 2 because i thought it was the only coding laguage(im slow)
